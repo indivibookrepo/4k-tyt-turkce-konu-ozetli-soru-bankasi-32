@@ -1,0 +1,1 @@
+# 4k-tyt-turkce-konu-ozetli-soru-bankasi-32
